@@ -8,7 +8,7 @@
 * **Phone:** +375 25 742 53 95
 * **Telegram:** +375 25 742 53 95
 * **E-mail:** pavlushkina1980@yandex.ru
-* **GitHub:** NataliaPV
+* **GitHub:** NataliaPW
 * **Discord:** @Яташа#2501
 
 ## _About Me_
