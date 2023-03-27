@@ -1,3 +1,3 @@
 # rsschool-cv
 
-https://nataliapw.github.io/shelter/
+https://NataliaPW.github.io/rsschool-cv/shelter/
